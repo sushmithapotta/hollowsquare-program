@@ -1,1 +1,0 @@
-# hollowsquare-program
